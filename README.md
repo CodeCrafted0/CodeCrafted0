@@ -50,12 +50,7 @@ Amacım, yapay zekâ destekli modern uygulamalar geliştirerek freelance iş alm
 
 ---
 
-## 📫 Bana Ulaşmak İçin
 
-- 🧠 Telegram: [@TheKriptoAdmin](https://t.me/TheKriptoAdmin)
-- 📺 YouTube: [Kripto Rehber](https://www.youtube.com/@Kripto_Rehber)
-- 🧩 Instagram: [@thekriptoadmin](https://instagram.com/thekriptoadmin)
-- 🌍 Portfolio Website: *(Yakında)*
 
 ---
 
